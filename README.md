@@ -1,4 +1,4 @@
-## OLá Seja-Bem Vindo(a) ao Perfil do dennys19 
+## OLá Seja-Bem Vindo(a) ao Perfil do dennys19 😁
 
 <div>
    <a href="https://github.com/dennys19">
